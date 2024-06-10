@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **akhilmathew7898@gmail.com**
 
-- 📄 Know about my experiences [[Resume]([https://drive.google.com/file/d/1R7QJ10GAWclVW4xA1R7roeAvTHp3jZiJ/view?usp=sharing](https://drive.google.com/file/d/1tadk6ydpxKHIg7mf7Xm6VuxXLDjd_JAb/view?usp=sharing))]
+- 📄 Know about my experiences [[https://drive.google.com/file/d/1tadk6ydpxKHIg7mf7Xm6VuxXLDjd_JAb/view?usp=sharing]([https://drive.google.com/file/d/1R7QJ10GAWclVW4xA1R7roeAvTHp3jZiJ/view?usp=sharing](https://drive.google.com/file/d/1tadk6ydpxKHIg7mf7Xm6VuxXLDjd_JAb/view?usp=sharing))]
 
 - ⚡ Fun fact **I think I love sarcasm...**
 
